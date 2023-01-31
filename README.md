@@ -1,4 +1,4 @@
-Bruh, all i do is a little bit of ~~trolling~~ coding ✨
+All I do is a little bit of ~~trolling~~ ✨ coding ✨
 
 <!---
 igordes/igordes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
